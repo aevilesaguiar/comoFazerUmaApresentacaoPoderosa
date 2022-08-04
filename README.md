@@ -29,3 +29,5 @@ Podemos usar essa estrutura para apresentar TCC, REUNIÃO E OUTROS....
 ## Referencias
 
 https://foodsafetybrazil.org/modelo-grow-alta-performance/
+
+https://youtu.be/tkPRMNbLsY4?t=566
